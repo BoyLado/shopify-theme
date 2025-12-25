@@ -1,0 +1,1 @@
+C:/Users/USER/Documents/shopify/bohemian-vibe-theme/AGENTS.md
